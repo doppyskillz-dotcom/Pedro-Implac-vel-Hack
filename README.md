@@ -1,0 +1,2 @@
+# Pedro-Implac-vel-Hack
+BOT GERAL IA SISTEMA DE ANALISE
